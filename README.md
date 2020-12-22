@@ -6,6 +6,8 @@ Sesi hipnoterapi Jogja akan dimulai dengan melakukan konsultasi secara tatap muk
 
 Setiap masalah atau keluhan ada yang melakukan terapi ini cukup dalam 1 pertemuan saja, namun ada juga yang perlu sampai beberapa kali pertemuan. Dalam sekali pertemuan biasanya membutuhkan waktu yang berkisar kurang lebih 2 jam sudah termasuk konsultasi dan hipnoterapi. Pada umumnya setiap orang akan menjalani waktu yang tidak sama. Waktu yang diperlukan tersebut bergantung pada seberapa rumit keluhan psikis yang dihadapi dan seberapa besar kemauan seseorang tersebut untuk terlepas dari masalah yang tengah dialami. Cepat atau lambat proses terapi tersebut berlangsung hanya tergantung dari masing-masing individu.
 
+![hipnoterapi jogja biaya](https://3.bp.blogspot.com/-odyuQIfNJTQ/X7dBlu0nXBI/AAAAAAAAMxg/n8Kuz9E7KsQipuuu5dttm-8KWKIHn8lJACK4BGAYYCw/s790/MENGHILANGKAN%2BKEBIASAAN%2BBURUK%2BFeed%2B%2528505%2529.jpg)
+
 ### Mengatasi Pikiran Negatif Dengan Hipnoterapi
 Terciptanya pikiran negatif sesungguhnya tidak selalu disebabkan karena orang lain atau kondisi di luar seseorang. Namun sebaliknya ada begitu banyak pikiran negatif yang tercipta karena cara berpikir diri sendiri. Itulah kenapa ketika pikiran negatif timbul dalam diri seseorang, maka tanpa sadar dia akan mencoba untuk sekeras mungkin agar pikiran negatif tersebut keluar dari pikirannya dengan cara mencoba untuk berhenti memikirkannya. Karenanya perlu stimulasi positif agar bisa merubah pikiran negatif menjadi positif.
 
